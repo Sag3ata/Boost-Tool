@@ -7,7 +7,7 @@
 
 `📝 How it works:`
 <br><br>
-This boost tool can boost any server but you need proxi and nitro tokens , you can buy this from Sag3ata / DISCORD.GG/9CLOUD
+This boost tool can boost any server but you need proxies and nitro tokens , you can buy this from Sag3ata / DISCORD.GG/9CLOUD
 
 `🤖 Captcha solving:`
 <br><br>
